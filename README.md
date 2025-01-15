@@ -4,7 +4,7 @@
 - 📫 How to reach me :
 - On discorde : Iapetus#3917
 - Instagram : ia.petus
-- Twitter : @i_e_a 
+- X(Twitter) : @i_e_a
 
 [![eelhadda's 42 stats](https://badge.mediaplus.ma/binary/eelhadda)](https://github.com/oakoudad/badge42)
 
